@@ -22,3 +22,20 @@ https://www.milb.com/news/gcs-117390354
 https://indyweek.com/food-and-drink/features/The-local-beer-issue-48-breweries-9-writers-1-mission/
 
 https://www.heraldsun.com/news/local/counties/durham-county/article176902586.html
+
+https://www.cheapism.com/craft-beer-cities-ranking/
+
+fsrmagazine.com/content/bull-durham-beer-co-sold-rd-brewing
+
+https://staging.livability.com/best-places/the-2020-top-100-best-places-to-live-in-america/durham-0/
+
+https://www.brewbound.com/breweries/bull-durham-beer-co/
+
+https://project543.visitnc.com/durham-athletic-park/
+
+https://www.ourstate.com/bull-durham-beer-company-hits-one-out-of-the-ballpark/
+
+https://www.ytravelblog.com/things-to-do-in-durham-north-carolina/
+
+https://www.discoverdurham.com/food-drink/breweries/
+
