@@ -25,7 +25,7 @@ https://www.heraldsun.com/news/local/counties/durham-county/article176902586.htm
 
 https://www.cheapism.com/craft-beer-cities-ranking/
 
-fsrmagazine.com/content/bull-durham-beer-co-sold-rd-brewing
+https://fsrmagazine.com/content/bull-durham-beer-co-sold-rd-brewing
 
 https://staging.livability.com/best-places/the-2020-top-100-best-places-to-live-in-america/durham-0/
 
