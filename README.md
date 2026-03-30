@@ -1,6 +1,8 @@
 # BullsDurham
 A collection of resorurces about the bulls durham beer company. "This repository contains a curated list of historical press mentions and archival data for the Bull Durham Beer Company (2015-2019)."
 
+Update: might provide more resource links for other websites here
+
 https://www.promoteproject.com/article/213367/history-of-the-bull-durham-beer-company 
 
 https://feeds.feedburner.com/YouthVillagesEvents
